@@ -37,8 +37,8 @@ Insha'Allah, I aim to work in 🇰🇼 Kuwait or 🇪🇺 Europe as a profession
 
 ### 📫 Contact Me
 
-- 💌 Email: `your-email@example.com` *(replace with your real one)*
-- 🛠️ GitHub Projects: [github.com/nizath](https://github.com/nizath)
+- 💌 Email: `nisathnisath606@gmail.com`
+- 🛠️ GitHub Projects: [github.com/niz-codex](https://github.com/nizath)
 - 🌍 Dream Destinations: 🇰🇼 Kuwait & 🇪🇺 Europe – Coming soon, Insha’Allah!
 
 ---
